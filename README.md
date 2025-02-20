@@ -1,2 +1,2 @@
-# OsanaTV
-Osana TV File Index Search! ⋆. 𐙚 ˚
+# OsanaNet
+OsanaNet File Index Search! ⋆. 𐙚 ˚
